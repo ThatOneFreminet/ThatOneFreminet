@@ -1,16 +1,16 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/d3904beb5e2add1b8a0c3691454e20b4/cc165883191bfb01-93/s1280x1920/37cc725a3da7f6b45449601a091df0bc6db0f787.pnj)
+![](https://64.media.tumblr.com/efd72797b79dcafd8a7dc2f9efd9f873/02d8440fb42d1d9a-52/s1280x1920/2bf15d4f7b6729a50e3affd6c8e3d38c44c792b5.pnj)
 
-![](https://64.media.tumblr.com/0cd48150dd13dcd21c36915bf142b368/269fa8a9a48fb54f-b1/s640x960/59dcf0d6c4cd0b407d963d9a579e91f284333ae3.pnj)
+![](https://64.media.tumblr.com/3392eba493044d5044a523ec5e312846/ac2d1016cc2f5479-ee/s640x960/465997b0afa7fb31a656d8f07a5b3e609bf01067.pnj)
 
-### 𝓜𝓲𝓼𝓱𝓪  ㅤㅤ⭑ㅤ  𝓚𝓸𝓴𝓸𝓶𝓲  ㅤㅤ⭑ㅤ  ㅤ𝓕𝓻𝓮𝓶𝓲ㅤ
+### 𝔐𝔦𝔨𝔬ㅤ 𝔬𝔯ㅤ 𝔐𝔦𝔰𝔥𝔞
 
-#### 𝓢𝓱𝓮 ⭑ 𝓗𝓮𝓻ㅤ ㅤ ㅤㅤㅤ![](https://64.media.tumblr.com/8bd207e6e99aa10f75e66a2877d4983e/f321029ba772e5f8-f1/s75x75_c1/8d46bd2b4a8c3de82fe457c34054302e3277fb3c.gifv)ㅤㅤㅤㅤㅤ 𝓗𝓮 ⭑ 𝓗𝓲𝓶ㅤ ㅤㅤㅤㅤ![](https://64.media.tumblr.com/8bd207e6e99aa10f75e66a2877d4983e/f321029ba772e5f8-f1/s75x75_c1/8d46bd2b4a8c3de82fe457c34054302e3277fb3c.gifv)ㅤㅤㅤㅤㅤㅤ𝓣𝓱𝓮𝔂 ⭑ 𝓣𝓱𝓮𝓶ㅤㅤ
+#### 𝓢𝓱𝓮 ![](https://64.media.tumblr.com/1c7b7ce14c30591acd981d285bfe4e65/b446c5c66747859d-f0/s75x75_c1/54c4d33c4b9a3fb558428cde8a71bdc235bba98b.gifv) 𝓗𝓮𝓻
 
-##### ![](https://64.media.tumblr.com/4ebbf44c0ae9badb433188c25ec92569/f321029ba772e5f8-1f/s75x75_c1/f4cf7c6de08b74bd6ee0b7c5c204c02f611b50a4.gifv)𝓖𝓮𝓷𝓭𝓮𝓻𝓯𝓵𝓾𝓲𝓭ㅤㅤ
+#### ![](https://64.media.tumblr.com/64f3c7cf5efe6050a14dafe4e0f44e5a/b446c5c66747859d-8f/s75x75_c1/5fb3dd3a5ecc77a896b55edd9bcb2087c872ab9e.gifv) 𝔗𝔯𝔞𝔫𝔰𝔤𝔢𝔫𝔡𝔢𝔯 ![](https://64.media.tumblr.com/64f3c7cf5efe6050a14dafe4e0f44e5a/b446c5c66747859d-8f/s75x75_c1/5fb3dd3a5ecc77a896b55edd9bcb2087c872ab9e.gifv)
 
-### ![](https://64.media.tumblr.com/2f0534f43adb784668cae63e50a94649/f321029ba772e5f8-d0/s75x75_c1/a5aa44ba901a94fea38f3a55550c61650db4d794.gifv)  ㅤㅤ[𝕽ᥱᥒ𝗍rᥡ](https://rentry.co/nikomish)  ㅤㅤ![](https://64.media.tumblr.com/2f0534f43adb784668cae63e50a94649/f321029ba772e5f8-d0/s75x75_c1/a5aa44ba901a94fea38f3a55550c61650db4d794.gifv)  ㅤㅤ[𝕬𝗍ᥲᑲ᥆᥆k](https://nikothecreature.atabook.org/)  ㅤㅤ![](https://64.media.tumblr.com/2f0534f43adb784668cae63e50a94649/f321029ba772e5f8-d0/s75x75_c1/a5aa44ba901a94fea38f3a55550c61650db4d794.gifv)
+### ![](https://64.media.tumblr.com/0eb81fa1cfd6ae1f82808abdfb6945b9/b446c5c66747859d-28/s75x75_c1/693a78a6763004186602ef491e6104795ac057a2.gifv)  ㅤㅤ[𝕽ᥱᥒ𝗍rᥡ](https://rentry.co/nikomish)  ㅤㅤ![](https://64.media.tumblr.com/0eb81fa1cfd6ae1f82808abdfb6945b9/b446c5c66747859d-28/s75x75_c1/693a78a6763004186602ef491e6104795ac057a2.gifv)  ㅤㅤ[𝕬𝗍ᥲᑲ᥆᥆k](https://nikothecreature.atabook.org/)  ㅤㅤ![](https://64.media.tumblr.com/0eb81fa1cfd6ae1f82808abdfb6945b9/b446c5c66747859d-28/s75x75_c1/693a78a6763004186602ef491e6104795ac057a2.gifv)
 
 
 ###### ᶜʰᵉᶜᵏ ᵃˡˡ ᵐʸ ˡⁱⁿᵏˢᵎ
@@ -18,6 +18,6 @@
 
 ---
 
-ᵍʳᵖʰ ᵇʸ [ᶜʳᵉᵉᵖʸˢᵖ⁴ᵍʰᵉᵗᵗⁱ](https://www.tumblr.com/creepysp4ghetti) ᵈⁱᵛⁱᵈʳ ᵇʸ [ʰʸᵉˡⁱᵗᵃ](https://www.tumblr.com/hyelita) ᵖⁱˣˡ ᵇʸ [ˢᵃⁱˢʰⁱᵐⁱ](https://www.tumblr.com/saishimi)
+ᵍʳᵃᵖʰⁱᶜ ᵇʸ [ᶠˡᵘᶠᶠᵉᵗᵗⁱˢ](https://www.tumblr.com/fluffettis) ᵖⁱˣᵉˡˢ ᵇʸ [ᵇʳᵃⁱⁿⁿᵘᵗˢ](https://www.tumblr.com/brainnuts) ᵈⁱᵛⁱᵈᵉʳ ᵇʸ [ᶜᵃⁿⁿⁱᵇᵃˡⁱᵐ](https://www.tumblr.com/cannibalim)
 
 ᵐᵃᵈᵉ ᵇʸ [ʳᵒˢᵉ](https://github.com/FurinaTheFountain)
